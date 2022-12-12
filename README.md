@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Software Engineer with a passion dor Data<br>Shoot me an Email or add me on LinkendIn
+I am Software Engineer with a passion for Data<br>Shoot me an Email or add me on LinkendIn
 
 
 ## 🌐 Socials:
